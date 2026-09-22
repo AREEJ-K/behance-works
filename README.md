@@ -16,5 +16,5 @@
 ---
 
 ### 🌐 Connect & View All Works
-تصفح معرض أعمالي التصميمية بالكامل عبر حسابي على بيانس: 
+تصفح معرض أعمالي التصميمية بالكامل عبر حسابي على  Behance:
 👉 [Behance Profile](https://www.behance.net/areejaseeri)
